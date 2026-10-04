@@ -24,7 +24,7 @@
 feel free to reach out if you're interested in data-driven environmental conservation, esg metrics, or just want to chat about how beautifully cells fight to survive!
 
 📝 **read my popular science narratives on [medium]([https://medium.com](https://itsbyologic.medium.com/menanam-di-tengah-krisis-alam-dampak-salinitas-air-tanah-terhadap-pertumbuhan-tanaman-8cf6d2b57f02))**
-and ([https://itsbyologic.medium.com/melahirkan-kebaikan-setelah-bangkit-dari-kematian-bc6a794474f5?sharedUserId=itsbyologic])
+
+**and (([https://itsbyologic.medium.com/melahirkan-kebaikan-setelah-bangkit-dari-kematian-bc6a794474f5?sharedUserId=itsbyologic]))**
 ---
 * bcs science is always more fun when told as a story. happy exploring! ✨*
-*
